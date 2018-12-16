@@ -1,1 +1,1 @@
-# La-expansi-n-acelerada-del-universo
+# La expansion acelerada del universo
